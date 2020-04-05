@@ -1,1 +1,1 @@
-# imk
+# tertipu kamu bangsat!

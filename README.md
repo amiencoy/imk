@@ -1,1 +1,0 @@
-# tertipu kamu bangsat!
